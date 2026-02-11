@@ -1,3 +1,0 @@
-Hippolyte PERRAUD
-
-Python
