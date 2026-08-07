@@ -1,3 +1,0 @@
-Hippolyte PERRAUD 
-
-VUT FIT - ERASMUS
